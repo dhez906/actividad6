@@ -1,2 +1,2 @@
-# actividad6
-## estot modificando
+# actividad 6
+## estoy modificando :D
